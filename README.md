@@ -1,6 +1,6 @@
 # Меня зовут Валерий Гончаров, я — сертифицированный сейлз коуч. 
 
-![myphoto](https://imgur.com/hCQ7XaS)
+![myphoto](1.jpeg)
 
 # Я могу помочь Вам, если Вы: 
 
@@ -21,12 +21,12 @@
 
 # Портфолио моих мероприятий
 
-![ММСО](https://imgur.com/ShfxphF)
+![ММСО](2.jpg)
 
-![Photo](https://imgur.com/Smp836S)
+![Photo](3.jpg)
 
-![Photo](https://imgur.com/80qbBcn)
+![Photo](4.jpg)
 
-![Photo](https://imgur.com/YgX6GWT)
+![Photo](5.jpg)
 
-![Photo](https://imgur.com/qJUg85a)
+![Photo](6.jpg)
