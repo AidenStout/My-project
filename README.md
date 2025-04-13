@@ -1,6 +1,6 @@
 # Меня зовут Валерий Гончаров, я — сертифицированный сейлз коуч. 
 
-![11zon_cropped](https://github.com/user-attachments/assets/8dbba852-c432-4126-8741-7626d2281a07)
+![11zon_cropped (1) (1)](https://github.com/user-attachments/assets/9ea118cc-f193-42a0-b8bc-d0804bff3479)
 
 # Я могу помочь Вам, если Вы: 
 
